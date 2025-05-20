@@ -1,2 +1,0 @@
-# Curr-culo-
-trabalho 
